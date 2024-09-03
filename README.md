@@ -1,0 +1,1 @@
+# pl_qa0_fx_jana_mas-akowaa
